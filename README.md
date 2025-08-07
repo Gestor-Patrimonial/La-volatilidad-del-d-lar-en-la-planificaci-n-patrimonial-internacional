@@ -1,1 +1,4 @@
-# La-volatilidad-del-d-lar-en-la-planificaci-n-patrimonial-internacional
+# La-volatilidad-del-d-lar-en-la-planificación-patrimonial-internacional
+La  inestabilidad de la moneda genera cambios significativos en  las estrategias financieras de todo el mundo. 
+La volatilidad del dólar estadounidense es una de las preocupaciones económicas en la actualidad, siendo una de las monedas más utilizadas en el mercado mundial. En este escenario, se deben efectuar cambios en las decisiones durante la planificación patrimonial a nivel global.
+Para los individuos de alto patrimonio neto y las familias con activos diversificados en distintas jurisdicciones, los cambios de esta moneda  no solo impacta el valor de sus inversiones, sino también la eficiencia de sus estrategias fiscales, de sucesión y de preservación de capital. Por ello, la planificación patrimonial internacional está atravesada por esta condición.
